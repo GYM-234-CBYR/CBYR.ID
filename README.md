@@ -1,2 +1,2 @@
-# CBYR.ID
+# CBYR
 Hallo Guys!!!
